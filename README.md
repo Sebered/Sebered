@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Sebered
+- 👀 I’m interested in everything?
+- 🌱 I’m currently learning about python and IT
+- 📫 How to reach me if you don't know how, you can't :(
+- 😄 Pronouns: Good question?
+- ⚡ Fun fact: Scooby Doo passes the Harkness test...
